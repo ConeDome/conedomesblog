@@ -1,3 +1,3 @@
-# Welcome to my blog
+#Coneville Community Time
 
-I'm glad you are here. I plan to talk about ...
+This is a website where I'm just gunna do as I please
